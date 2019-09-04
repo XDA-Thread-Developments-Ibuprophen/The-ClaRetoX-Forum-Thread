@@ -1,4 +1,4 @@
-# The ClaRetoX Forum Thread
+# The ClaRetoX1 Forum Thread
 
 TITLE: [APP][2.x+]The ClaRetoX1 Forum [A Classic-Way to the XDA!]
 
